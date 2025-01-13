@@ -1,1 +1,0 @@
-# absen_karyawan_nabati
